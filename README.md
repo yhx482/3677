@@ -40,4 +40,4 @@ Reddit 社群推荐：如 r/JAV 和 r/AVLinks，用户会定期发布资源站�
 
 合规提示
 本文仅提供信息性导航内容，未提供任何侵权资源或非法链接。请确保您年满18岁，所有观看行为应遵守当地法律法规。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/3677 ）</span>
